@@ -55,10 +55,10 @@ The personal information of the user shall be destroyed within 5 days from the e
 
 Personal Information Protection Officer
 
-Name : Wonhoon Choi
+Name : Kale Hwang (KYUYOUNG HWANG)
 Position : Master
 Position : Master
-Contact :-, mail@thetutor.co.kr, -
+Contact :-, kalehwang410@gmail.com, -
 ② The information subject may contact the person in charge of personal information protection for all personal information protection-related inquiries, complaints, damage relief, etc. that occurred while using the service (or business) of 'MH Games'. 'MH Games' will respond and process the information subject's inquiries without delay. 　
 
 
